@@ -35,6 +35,6 @@ By wasting three hours in my life.
 
 ### Could you tell me why?
 
-You ask me, I ask who?
+You ask me, I ask whom?
 
-OK...it is just a Chinese joke. If you know the reason, would you please leave a note and tell me why? I will be appreciated with any help.
+OK...it is just a Chinese joke. If you know the reason, would you please leave a note and tell me why? I will be appreciated for any help.
